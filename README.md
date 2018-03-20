@@ -1,1 +1,1 @@
-<https://kylesethgray.github.io/howmanydayshasitbeensinceslackaddednewemoji.github.io/>
+<https://kylesethgray.github.io/haszucksaidanythingyet.github.io/>
